@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pavan-Kumar-Mallela
-- 👀 I’m interested in keeping my code streak..
+- 👀 I’m interested in maintaining my code streak..
 - 🌱 I’m currently learning DSA,AI&ML,DS and basics in cybersecurity
 - 💞️ I’m looking to collaborate on developing our portfolios together in my learning feilds
 - 📫 How to reach me :
