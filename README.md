@@ -6,12 +6,11 @@
       ph no:9014164923||
       email:pavankumarmallela0211@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: I still don't understand the concept of pronouns
+- ⚡ Fun fact:
 
-  
-                Most of my projects are codes that have their important links removed which i try to restore
-
-                😑😑DId so many courses that now i dont remember properly what is what now
+      I still don't understand the concept of pronounns
+      Most of my projects are codes that have their important links removed which i try to restore
+      😑😑DId so many courses that now i dont remember properly what is what now
 
 ###I think beauty lies in creation after destruction cause u will know what made it unique before destruction
 
