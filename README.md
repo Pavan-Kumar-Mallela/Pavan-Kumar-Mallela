@@ -8,6 +8,6 @@
 - 😄 Pronouns: He
 - ⚡ Fun fact: I still don't understand the concept of pronouns||
                 Most of my projects are codes that have their important links removed which i try to restore
-<!---
-i think beauty lies in creation after destruction cause u will know what made it unique before destruction
---->
+
+###''I think beauty lies in creation after destruction cause u will know what made it unique before destruction''
+-😅😅 been busy in Smart Interviews ranking haul so couldn't update my projects and all of them are pending
