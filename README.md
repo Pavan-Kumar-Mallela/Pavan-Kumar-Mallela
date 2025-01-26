@@ -14,11 +14,10 @@
 
 ###I think beauty lies in creation after destruction cause u will know what made it unique before destruction
 
-
--😅😅 been busy in Smart Interviews ranking haul so couldn't update my projects and all of them are pending, and here comes my exams
---😊😊😁 Mid over
--
-
-
-
---->Started Salesforce as of 8/12/24
+--->Salesforce as of 8/12/24-17/12/2024(4th year project started so stopping)
+--->Attending Infosys campus placement so preparing for it(24/12/2024)
+--->project review 1 over as of 28/12/2024
+--->Infosys Se got selected will have upgradation exam as of 19/01/2025
+--->Did avg in the upgradation
+--->Applied and participated in deloitte NLA  answered well but not fast enough
+---> added my latest python basic projects done in these past three days as of 26 jan 
