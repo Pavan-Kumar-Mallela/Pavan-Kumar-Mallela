@@ -3,14 +3,14 @@
 Welcome to my digital workspace.
 
 I’m a final-year B.Tech student in Computer Science with a focus on **AI, Machine Learning, and Cloud Solutions**.  
-Currently on a mission to **land a high-impact role in AI-driven product engineering or pre-sales tech** — within 60 days.  
+Currently on a mission to **land a high-impact role in this AI-driven world** — within 60 days.  
 No distractions. No detours. Just building, learning, and shipping real projects.
 
 ---
 
 ## 🚀 My Current Mission (April–June 2025)
 
-> **“Become a hybrid AI App Builder + Solutions Engineer.”**
+> **“Become a Earner rather than Spender.”**
 
 I’m building and deploying a series of AI-powered tools and apps to:
 - Improve real-world problem-solving skills
